@@ -42,8 +42,8 @@ At My Grace Bookstore, we provide a range of services to enhance your reading ex
 
 ## Contact Information
 
-- Phone: (123) 456-7890
-- Email: info@myawesomebookstore.com
+- Phone: 9167483837
+- Email: gracebookstore@gmail.com
 
 
 
